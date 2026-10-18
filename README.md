@@ -1,6 +1,6 @@
 # Crocker Old People’s Home, 1925–1957
 
-Minutes of the Crocker Old People’s Home, 1925–1957. It merged with the Society in 1955.
+Minutes of the Crocker Old People’s Home, 1925–1957. It merged with the Society in 1955; its managers kept meeting until 1957.
 
 Part of the photographed records of the **San Francisco Ladies’ Protection and Relief Society** (Heritage on the Marina). Browse and search every series together at **https://sflprs.github.io**.
 
